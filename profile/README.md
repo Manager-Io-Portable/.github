@@ -1,7 +1,7 @@
 # Manager.io Professional Enterprise Accounting Environment for Windows Systems
 
 <div align="center">
-  <img src="https://thecfoclub.com/wp-content/uploads/sites/12/2025/12/manager-io-Product-Review-96727-1280x720.png" alt="Program Logo"/>
+  <img src="https://pic.clubic.com/v1/images/2183920/raw" alt="Program Logo"/>
 </div>
 
 <div align="center">
